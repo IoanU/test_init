@@ -1,2 +1,2 @@
 bro bruh
-\nbruh bro
+bruh bro
